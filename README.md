@@ -1,4 +1,1 @@
-
-
-https://user-images.githubusercontent.com/84409940/144633813-3a6a99b3-8798-42cf-8fa1-7716379bfd28.mp4
-
+![‏‏לכידה](https://user-images.githubusercontent.com/84409940/144634048-989825ba-a5ca-44ae-9e18-a6c5f7f10bad.PNG)
