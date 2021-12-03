@@ -1,1 +1,1 @@
-![ProfessorWeb](https://user-images.githubusercontent.com/84409940/144633335-ad447e8b-3d15-4993-bf56-c829f295dbcc.png)
+![‏‏לכידה](https://user-images.githubusercontent.com/84409940/144633583-008d07d9-6800-43de-aa05-5a8541adfebc.PNG)
